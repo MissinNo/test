@@ -1,1 +1,1 @@
-https://gpe-my.sharepoint.com/:p:/r/personal/tadmatu52_edu_gdansk_pl/_layouts/15/Doc.aspx?sourcedoc=%7BC4324473-7781-42A5-BB09-9BE39FB1AA77%7D&file=Autoprezentacja%202025.pptx&action=edit&mobileredirect=true&DefaultItemOpen=1&ct=1744653434149&wdOrigin=OFFICECOM-WEB.MAIN.REC&cid=e678c1d4-67f8-4dbe-9fe7-518c0c905d33&wdPreviousSessionSrc=HarmonyWeb&wdPreviousSession=1ac8b232-bfc3-4151-a123-28639b43c2ca# test
+https://gpe-my.sharepoint.com/:p:/g/personal/tadmatu52_edu_gdansk_pl/EXNEMsSBd6VCuwmb45-xqncB9A-VRh-6MeDchmuMlrLEig?e=SkznKR
